@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @lukedelgiudice
-- 📫 Reach me at wcc5ub@virginia.edu
+- 📫 Reach me at luke.delgiudice@outlook.com
 
 
 <!---
